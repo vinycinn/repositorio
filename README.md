@@ -1,0 +1,2 @@
+# repositorio
+projeto de pensamento
